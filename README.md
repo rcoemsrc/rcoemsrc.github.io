@@ -1,2 +1,2 @@
 # rcoemsrc.github.io
-Official Website of Cultrual Fest "Pratishruti" organised by Students' Representative Council, RCOEM. 
+Official Website of Cultural Fest "Pratishruti" organized by Students' Representative Council, RCOEM.  
